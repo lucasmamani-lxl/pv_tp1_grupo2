@@ -5,3 +5,4 @@
 Dionicio Rodrigo Ezequiel / Dionicio-Rodrigo  
 Cruz Benavidez Rita Melina / rmelinacruzb  
 Aramayo Estrada Leonel Maximiliano / Leomax99
+Mamani Lucas Lautaro / lucasmamani-lxl
